@@ -1,0 +1,2 @@
+# bakmie-ayam
+gak ada
